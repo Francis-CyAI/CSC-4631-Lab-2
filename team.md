@@ -1,1 +1,1 @@
-Team lead: Prince Msimuko
+Team lead: Msimuko Prince

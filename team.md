@@ -1,1 +1,1 @@
-Team lead: Francis Kalunga
+Team lead: Msimuko Prince & Francis Kalunga
